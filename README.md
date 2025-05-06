@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm 70M4NDJ3RRY. Guess what is my favorite childhood cartoon?🤔
 
 <!--
 **70M4NDJ3RRY/70M4NDJ3RRY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
